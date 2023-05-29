@@ -2,18 +2,18 @@
 
 ### Ingredients
 
-20g cocoa powder
-5 ounces / 142g semisweet chocolate chips (between 55% to 68% cacao)
-85g unsalted butter (cut into small chunks)
-1/4 cup rapeseed oil
-100g caster sugar
-100g light brown sugar
-1 large egg
-2 large egg yolks
-1 1/2 teaspoons vanilla extract
-100g plain flour (3.5 oz / 100g)
-1 teaspoon salt (0.11 oz / 3g)
-1/4 cup boiling water
+- 20g cocoa powder
+- 5 ounces / 142g semisweet chocolate chips (between 55% to 68% cacao)
+- 85g unsalted butter (cut into small chunks)
+- 1/4 cup rapeseed oil
+- 100g caster sugar
+- 100g light brown sugar
+- 1 large egg
+- 2 large egg yolks
+- 1 1/2 teaspoons vanilla extract
+- 100g plain flour (3.5 oz / 100g)
+- 1 teaspoon salt (0.11 oz / 3g)
+- 1/4 cup boiling water
 
 **optional:** 2 tablespoons malted milk powder (0.63 oz / 18g) - I use Ovomaltine
 
