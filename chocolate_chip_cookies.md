@@ -1,4 +1,4 @@
-# Claire Saffitz Makes Chocolate Chip Cookies | Dessert Person
+# Chocolate Chip Cookies
 
 ### Ingredients
 
